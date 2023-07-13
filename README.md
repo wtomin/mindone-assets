@@ -1,0 +1,1 @@
+# mindone-assets
